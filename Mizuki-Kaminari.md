@@ -161,6 +161,6 @@ The ocean is her sanctuary. Salt water does not stare. It does not flinch. It he
 
 > ⚠️ **Spoiler Warning**
 
-- Mizuki's relationship with Ellie will develop through persistence and crisis
+- Mizuki's relationship with Evory will develop through persistence and crisis
 - Long-term neurological effects of her oddity are unknown (TBD idfk what im doing with that yet, might explore or might just leave it as a minor part of the story)
 ---
